@@ -1,1 +1,0 @@
-# njernigan55.github.io
